@@ -94,3 +94,5 @@ Our illustrious history is not only our past but our guiding light to the future
 ### Lambda Theta Phi … Academic Excellence – Brotherhood – Leadership – Latino Unity -Service.
 
 ![](https://github.com/santabarbaralambdas/Leaders-of-the-Latino-Greek-Movement/blob/master/2017-04-26%2019.30.55.jpg?raw=true)
+
+For more information about the brown and white brothers of Lambda Theta Phi visit http://www.thelambdas.org/ where most of the information on this site comes from. 
