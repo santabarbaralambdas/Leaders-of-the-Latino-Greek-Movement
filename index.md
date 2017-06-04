@@ -2,11 +2,16 @@
 
 Greetings we're the brothers of Lambda Theta Phi Latin Fraternity Incorporated at UCSB more commonly known as the Lambdas . Follow this page to keep up with our current events!!!
 Our Ideals are as follows 
-Academic Excellence; Brotherhood; Leadership; Latino Unity; Service. 
+Academic Excellence;
+Brotherhood; Leadership; 
+Latino Unity; 
+Service. 
+![](https://github.com/santabarbaralambdas/Leaders-of-the-Latino-Greek-Movement/blob/master/2017-04-03%2022.00.06-2.jpg?raw=true)
 
 Our brothers live up to these ideals set forth by fourteen young Latino men over 40 years ago.
 
-Leaders-of-the-Latino-Greek-Movement/2017-04-03 22.00.06-2.jpg
+
+
 
 
 
