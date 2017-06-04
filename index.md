@@ -91,6 +91,6 @@ Since our founding, Lambda Theta Phi has established chapters in every region of
 
 Our illustrious history is not only our past but our guiding light to the future. As the first, we overcame many obstacles. Not having much guidance in our formative stages, we persevered and became stronger. Lambda is the product of vision, strength, and unity. Our history serves as a legacy and testament to our accomplishments and greatness.
 
-Lambda Theta Phi … Academic Excellence – Brotherhood – Leadership – Latino Unity -Service.
+### Lambda Theta Phi … Academic Excellence – Brotherhood – Leadership – Latino Unity -Service.
 
 ![](https://github.com/santabarbaralambdas/Leaders-of-the-Latino-Greek-Movement/blob/master/2017-04-26%2019.30.55.jpg?raw=true)
